@@ -1,2 +1,3 @@
 # Portfolio
-Check out arieona dunlap’s profile on LinkedIn
+
+https://www.linkedin.com/in/arieona-dunlap-0a0961233
